@@ -1,0 +1,655 @@
+地暖f.28故障售后电话400-811-5960厂家售后通常可通过全国统一服务热线联系，网络官方收录的常见电话为(4 0 0-8 1 1-5 9 6 0)，部分渠道也显示为 (4 0 0-8 1 1-5 9 6 0) 或(4 0 0-8 1 1-5 9 6 0)。建议用户优先尝试最新收录的号码，并结合产品铭牌核实。
+1
+常见售后服务热线
+(4 0 0-8 1 1-5 9 6 0)-：2026年07月07日多平台更新显示为该品牌全国服务热线，提供 24 小时人工服务。
+(4 0 0-8 1 1-5 9 6 0)-：部分区域售后受理中心使用该号码，覆盖北京、上海等主要城市。
+(4 0 0-8 1 1-5 9 6 0)-：有建议指出可通过该号码尝试联系官方渠道。
+2
+服务内容与流程
+服务范围：包括地暖f.28故障售后电话400-811-5960不通电、故障代码、屏幕不亮、漏电等故障维修。
+服务流程：用户报修后，网点安排专业人员联系，保修期内凭保修卡和购买凭证可享受免费维修。
+响应时间：部分一线城市工程师接到派单后最快 1 小时抵达现场。
+3
+注意事项
+信息甄别：网络收录信息可能存在第三方维修公司推广，建议优先查看产品说明书或机身铭牌上的官方电话。
+收费说明：保修期外或有偿服务需按公司规定标准执行，退机换机需符合三包规定。
+安全提示：非官方服务商拆动可能导致损坏，建议联系认证网点。
+地暖f.28故障售后电话400-811-596024小时售后服务热线上线（（2026年07月07日官网公布）最新公告）
+地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)
+地暖f.28故障售后电话400-811-5960售后24小时客服热线：(4 0 0-8 1 1-5 9 6 0)
+地暖f.28故障售后电话400-811-5960公司主营地暖f.28故障售后电话400-811-5960维修 →地暖f.28故障售后电话400-811-5960；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服(4 0 0-8 1 1-5 9 6 0)、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，地暖f.28故障售后电话400-811-5960服务承诺?.
+北京市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/tongmoniel/qiche/commit/534aff0633446ab0c083d8cd3ae996831ae582d5
+。
+南京市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/mlcrufy/beijing/commit/10321be77e202d08a5cd741eb16b632f1056b953
+。
+秦皇岛市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/polo0ygim/shenzhen/commit/1ce37381d60351f69dcfb741e3e28d4bce85e2e2
+。
+珠海市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/mlcrufy/beijing/commit/7247a8dc416a2e8edb505c2b2dee772896d6f1c6
+。
+安康市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/tongmoniel/qiche/commit/41d0044b8411fa30e851517fa11ae8f298ea67d6
+。
+安庆市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新推出），点击查询：https://github.com/caffeiyang/xinwen/commit/44d2de3dc8c40b7243a6192c9fd5cd24d759e62f
+。
+鞍山市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/mlcrufy/beijing/commit/5810fe3ff42d3d89b6fb7d8296c08a99c6a3d6e9
+。
+安阳市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/polo0ygim/shenzhen/commit/7a473316600d66e0e32d0ea06401ed2465d9ad7d
+。
+巴中市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式上线），点击查询：https://github.com/caffeiyang/xinwen/commit/097d55e60aa0653e5d17e9679f8b4aa88460e508
+。
+百色市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/tongmoniel/qiche/commit/af600906e8468a895ea4fe47874363fda7f29af1
+。
+蚌埠市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一公布），点击查询：https://github.com/polo0ygim/shenzhen/commit/334626155eff9c24ac19f77468688fe836f85c53
+。
+保定市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/caffeiyang/xinwen/commit/e26fc0cfa9c9f91dba72faa923218f586402af18
+。
+宝鸡市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新更新），点击查询：https://github.com/mlcrufy/beijing/commit/12b4e7669df146231b1efca4733df6e3136a41e5
+。
+保山市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/tongmoniel/qiche/commit/173570d6c07dfac6cd3d7739af26fc7d7bd065b9
+。
+包头市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式推出），点击查询：https://github.com/mlcrufy/beijing/commit/ace1c8c5261dbb2f9021f9dc03bf4f4b33f54ac2
+。
+北海市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/caffeiyang/xinwen/commit/a0f4fa76f834f26e686466c1515b25634234c4c9
+。
+本溪市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/tongmoniel/qiche/commit/6dfbf34451413e76cf817d8a9d3529d2b3a36024
+。
+滨州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/polo0ygim/shenzhen/commit/dda64d7406e1c51f33e5330fd2f11977724ed85f
+。
+博罗市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/mlcrufy/beijing/commit/e161a3d863f68a1ed2d5b3eb0519d5af0c7552d3
+。
+沧州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/caffeiyang/xinwen/commit/506d37d23e7a497ea46c71e1582defe7b1a281e1
+。
+长春市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一公布），点击查询：https://github.com/polo0ygim/shenzhen/commit/6962afdc15bf364a91b116c39bdef1e5f519479e
+。
+常德市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/tongmoniel/qiche/commit/13a3c7ca26369f85934ffb5c3549d88ce069906d
+。
+长葛市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一上线），点击查询：https://github.com/caffeiyang/xinwen/commit/ac56f6140f42ff509fdb3d1891c56129c35280a8
+。
+长沙市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/mlcrufy/beijing/commit/9187de4a3b2a6d43a83d2b29663d07620431bd94
+。
+常熟市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/polo0ygim/shenzhen/commit/546997dfac348a4a00f38a1520fc45d9599a0392
+。
+长兴市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新上线），点击查询：https://github.com/tongmoniel/qiche/commit/d941c8b6b6960551cee9dfccd08405629fdd782e
+。
+长治市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新推出），点击查询：https://github.com/mlcrufy/beijing/commit/ad6615af81bd7c3831d696d7c3958e04943a9846
+。
+常州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一上线），点击查询：https://github.com/caffeiyang/xinwen/commit/f6cd241a0353869d3957dcee0982f2a1b566c454
+。
+巢湖市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新更新），点击查询：https://github.com/tongmoniel/qiche/commit/839f8a8603599cd7d4c4b0161cf60a6881dc3aee
+。
+朝阳市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/polo0ygim/shenzhen/commit/e5f354a59f5b8b42cf58c0e3d0ff5af6e0e6597f
+。
+潮州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/caffeiyang/xinwen/commit/0c637bff2dbcfba0d427195550ebb71a737ada36
+。
+郴州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/mlcrufy/beijing/commit/8befcc4675bd1fea2db5acabe485cdc198732709
+。
+承德市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/polo0ygim/shenzhen/commit/8712c5db34909f99de66887786a684bfb843cde3
+。
+成都市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式升级），点击查询：https://github.com/tongmoniel/qiche/commit/c552720882262d6225de41056873f5d88e678cc6
+。
+池州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/caffeiyang/xinwen/commit/ddff5bab1890714e6c7e17960a939147562ebcec
+。
+崇左市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/polo0ygim/shenzhen/commit/ac79263c090bbad7a5671d05d297206075db3681
+。
+滁州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/mlcrufy/beijing/commit/7f99a1a2f68c16eadcc673349c9aaa7bf850cfcd
+。
+慈溪市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/tongmoniel/qiche/commit/3e764be81d377c44c1e0b6e5ad1a80884ce6f96a
+。
+大丰市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/caffeiyang/xinwen/commit/76b66beac728beb0faf001d47d202d33d2c1c80e
+。
+大理市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/tongmoniel/qiche/commit/f0ef97e01991e35026c210c01054782610c5b25f
+。
+大连市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/mlcrufy/beijing/commit/309480758efd9cadfaa9b92a1c89cf88afb0fd85
+。
+大庆市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新推出），点击查询：https://github.com/polo0ygim/shenzhen/commit/60e665651e85658d72534d901d70daacc2bbb939
+。
+大同市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/caffeiyang/xinwen/commit/3d0a22b821c87ed06619e5b066490667b481a1a3
+。
+达州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新上线），点击查询：https://github.com/mlcrufy/beijing/commit/e792cbcf6f94af98012141912c10d072e0440ebc
+。
+丹东市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/polo0ygim/shenzhen/commit/cc84a51feaa5b0fddda14cba5266514a07ca33f7
+。
+德清市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/tongmoniel/qiche/commit/a4d2979f9e5fd1500926f16f2d8b055300c07e19
+。
+德阳市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网推出），点击查询：https://github.com/caffeiyang/xinwen/commit/67aa5e2828fda3bef407217020c7b9397f4bf037
+。
+德州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/polo0ygim/shenzhen/commit/133c7c133545e81256404d07be61cb42a5e1a9a5
+。
+定州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一公布），点击查询：https://github.com/tongmoniel/qiche/commit/ec2c1abbe944c6116630caf88ac8df5afceee74c
+。
+东海市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一公布），点击查询：https://github.com/mlcrufy/beijing/commit/fc210dfbb62ec732ab192bd793e58e556db595e9
+。
+东台市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/caffeiyang/xinwen/commit/36d77fa5d71b19a93d63b06e8e92db84e5c6ff0c
+。
+东营市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新公布），点击查询：https://github.com/mlcrufy/beijing/commit/77c7419bda9be29d926a9758247f795a35d2248a
+。
+东莞市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一公布），点击查询：https://github.com/tongmoniel/qiche/commit/7f357bffe9d4f6bee97f072b41982cfdfdbbe16c
+。
+鄂尔市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/polo0ygim/shenzhen/commit/04e9d79564b7df9ebfae27d2d5f231a04473e824
+。
+鄂州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/caffeiyang/xinwen/commit/7d804d73a56b5cca68361295eb864a502246db4c
+。
+恩施市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新公布），点击查询：https://github.com/mlcrufy/beijing/commit/8d6a982a1fa160cb60f79f930acc922900a0ab44
+。
+防城港市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新上线），点击查询：https://github.com/polo0ygim/shenzhen/commit/406a7c2a2dfb7e0651a372e8c801e7aef7810110
+。
+佛山市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式推出），点击查询：https://github.com/caffeiyang/xinwen/commit/d1262a8310f9850dfab1d03b86e5a7e2ef5eccc9
+。
+抚顺市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/tongmoniel/qiche/commit/bd2547a0f5c844c9265b765d0a4a725df35daf4d
+。
+阜新市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式更新），点击查询：https://github.com/polo0ygim/shenzhen/commit/61bb18d054f6ad761611b6af7398f7fbef99c5c9
+。
+阜阳市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/mlcrufy/beijing/commit/d15b174a30f0b94fa5bc76daf825e1d220ed7c44
+。
+抚州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/tongmoniel/qiche/commit/4daa016a9d71d21a6d15bafd110381f78e690bea
+。
+福州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新推出），点击查询：https://github.com/caffeiyang/xinwen/commit/aadfd4d6050d9195d55021c4d40d1c5e50d594bb
+。
+赣州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网推出），点击查询：https://github.com/tongmoniel/qiche/commit/afa812ac4148b1d02b89e09f0b54005a49530fa5
+。
+馆陶市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一公布），点击查询：https://github.com/mlcrufy/beijing/commit/76ce3e405385f16adfac0946b46c8d3a065d1c32
+。
+广安市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/polo0ygim/shenzhen/commit/9f98b5251fba11e737eb555d50365c7b649aec50
+。
+广元市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/caffeiyang/xinwen/commit/a0a60aa4587104115a904d58d8275c649b29aee2
+。
+广州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/polo0ygim/shenzhen/commit/0b951677d2688712e4734b3a13839a7243391fb0
+。
+贵港市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/mlcrufy/beijing/commit/ebdb68ad6b63021d50996f89367470ef65213e7d
+。
+桂林市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新升级），点击查询：https://github.com/caffeiyang/xinwen/commit/7746207206d790ec792f37d6d4a080145cbd293e
+。
+贵阳市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新更新），点击查询：https://github.com/tongmoniel/qiche/commit/2ce93101fc67c7e7e59b6019e8f5a41850944dd5
+。
+哈尔滨市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/polo0ygim/shenzhen/commit/a71767fecb7aea98e8a49e0ef93c796d925cbbca
+。
+海安市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/tongmoniel/qiche/commit/7eff55f77e28e108ab23e382d4a50a8cba2dada4
+。
+海口市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/mlcrufy/beijing/commit/737974bbb0f45fa88959c318e77338fcf1264f7d
+。
+海门市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/caffeiyang/xinwen/commit/f4f92261633a57030c5dc775a336ad18643f819a
+。
+海宁市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/tongmoniel/qiche/commit/a3eef04765d9246051fee7001ef0dbf08ad4378b
+。
+邯郸市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/mlcrufy/beijing/commit/6cfc8e4c45fa898edfcef9918e8915cfa4021cc6
+。
+汉中市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新更新），点击查询：https://github.com/caffeiyang/xinwen/commit/e6153983ed0aab5c71ca87b025e24522cd9b25aa
+。
+杭州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/polo0ygim/shenzhen/commit/1c48f71fd51f2662d5361fa3cb508bf045c0618b
+。
+鹤壁市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/mlcrufy/beijing/commit/02fe24aceca107179b2c8342bba3f1e3bd4b3613
+。
+河池市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式上线），点击查询：https://github.com/caffeiyang/xinwen/commit/c47d649bb58b56b7b58a4d4d920e96619c7c15cb
+。
+合肥市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/polo0ygim/shenzhen/commit/b53cd1490d527791f587ff8b97cc0e2317166b69
+。
+河源市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/tongmoniel/qiche/commit/ffcaa4cb2406633e0034d687a97eab5632052cf7
+。
+菏泽市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新推出），点击查询：https://github.com/polo0ygim/shenzhen/commit/9399cc3bd65fec556a96ea4450cba299c812c64e
+。
+贺州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一上线），点击查询：https://github.com/mlcrufy/beijing/commit/bbcf89a04b56799944b26dfff0092119ae1051d7
+。
+衡水市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新上线），点击查询：https://github.com/tongmoniel/qiche/commit/e0a1ab0cfa2000cd45b11d349c185bc903ea1956
+。
+衡阳市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新上线），点击查询：https://github.com/caffeiyang/xinwen/commit/62816791d952e322b10d564390be13bb59007b22
+。
+呼和浩特市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/mlcrufy/beijing/commit/664bce582c78a7db56df1e40aa2d1ca945b085cb
+。
+葫芦岛市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/tongmoniel/qiche/commit/fdcae40c6cdd1140f77c5551ea942f0ddc729e02
+。
+湖州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新公布），点击查询：https://github.com/caffeiyang/xinwen/commit/d8d953cb211a61d603e3ce4aa94bf65b1390e0d1
+。
+淮安市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/polo0ygim/shenzhen/commit/b7994ffd211d0b906fbabbe949c32f149856db2c
+。
+淮北市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/mlcrufy/beijing/commit/49a4125b4e48c4b88c731aabda0f37fd71fa6770
+。
+怀化市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式升级），点击查询：https://github.com/caffeiyang/xinwen/commit/4d1895b5c8021459ad9f909d97355d3a26432451
+。
+淮南市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一公布），点击查询：https://github.com/polo0ygim/shenzhen/commit/7a4e4cae5ea01541183009663491eb7482da84b0
+。
+黄冈市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/tongmoniel/qiche/commit/98656e1b6a2eed56c7243d624da42a1455193716
+。
+黄山市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式升级），点击查询：https://github.com/polo0ygim/shenzhen/commit/c4503721e1c8be8f5b5b231c1f79ce2e5463d1d7
+。
+黄石市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/mlcrufy/beijing/commit/7b36ee3441c16d2b1056763bbfce3038f3d1cb28
+。
+惠东市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/caffeiyang/xinwen/commit/108ef2668b7a98491d8357f4c4d7230e1618690f
+。
+惠州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式推出），点击查询：https://github.com/tongmoniel/qiche/commit/792df2bf42d95cb5684fcb18a89c445b07cfcfea
+。
+霍邱市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新公布），点击查询：https://github.com/polo0ygim/shenzhen/commit/1eeafa6e7c8a3035763dbdbd0bc342d40e60857d
+。
+吉安市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式更新），点击查询：https://github.com/mlcrufy/beijing/commit/d09008206e3b3ccaf3ad1b34fd939497ded86a0f
+。
+吉林市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/caffeiyang/xinwen/commit/1e301f171a5a5cb05bd7a4c83554e777b6aa8dd7
+。
+济南市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/tongmoniel/qiche/commit/7343b68bff584e3c05a4744d623adbb72272137a
+。
+济宁市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/mlcrufy/beijing/commit/87d0194fccd06c9440129f7a62810ba726abde3b
+。
+济源市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/polo0ygim/shenzhen/commit/3565eadf6c32712229391b2d74473a6fc1ac6a9e
+。
+佳木斯市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/caffeiyang/xinwen/commit/103627cacfb7f35e9c0f6e62b1a73d19326ae3e6
+。
+嘉善市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新升级），点击查询：https://github.com/tongmoniel/qiche/commit/469138ff4fe4611a19ecc8950e92d28a1df7f0ad
+。
+嘉兴市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式上线），点击查询：https://github.com/polo0ygim/shenzhen/commit/0e93eaf467740b88ff3f5cc4529349b026339bd8
+。
+嘉峪关市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/mlcrufy/beijing/commit/5bb54d80a6b6dec365d90df1e06e41ae634f8218
+。
+建湖市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/tongmoniel/qiche/commit/d156de7dadc6c4e6c802a429cc9ff06257e39680
+。
+江门市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/caffeiyang/xinwen/commit/ea0164c353497badf3ee6da99552e6fefaad3570
+。
+江阴市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网推出），点击查询：https://github.com/mlcrufy/beijing/commit/f0d9f17602e970bd33bc653c2cfb855079dd3af8
+。
+焦作市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/polo0ygim/shenzhen/commit/06eb479af323ce687b7c1c75494595f16b408106
+。
+揭阳市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式公布），点击查询：https://github.com/tongmoniel/qiche/commit/807dfb62e1a5c338b4cd9658cff25ee7431271ba
+。
+金华市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式公布），点击查询：https://github.com/caffeiyang/xinwen/commit/b8ce151e3f29b8d798dd09e6d518304eb4874708
+。
+晋江市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式上线），点击查询：https://github.com/mlcrufy/beijing/commit/5614aa0943175a322edb361ca37f4e189c868405
+。
+锦州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/polo0ygim/shenzhen/commit/436ffb5c94730cb3f1ac45cfef7b93a91644314f
+。
+景德镇市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网推出），点击查询：https://github.com/caffeiyang/xinwen/commit/ef1e8c32c17bdef95e93ee39683ec038995b3dc1
+。
+靖江市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式升级），点击查询：https://github.com/tongmoniel/qiche/commit/b53d252e81113b8b75bb32c3d1ac8185e61952ea
+。
+荆门市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式更新），点击查询：https://github.com/polo0ygim/shenzhen/commit/09dfc1bc946818e58034334d58fb66e5fb000ec3
+。
+荆州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/mlcrufy/beijing/commit/0288eb5e28869a220b15efa68f9ec0d37f0dbe75
+。
+九江市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新公布），点击查询：https://github.com/tongmoniel/qiche/commit/7940773636535f9878efdfdaa0766c3d9bd1ae02
+。
+喀什市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新更新），点击查询：https://github.com/caffeiyang/xinwen/commit/ec230dfd14f30c7a523cc52c9a3ac7e794b0a779
+。
+开封市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/mlcrufy/beijing/commit/8f14f2ca790b6381967b9a5c351699ed6ef7a22e
+。
+克拉玛市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式上线），点击查询：https://github.com/polo0ygim/shenzhen/commit/1b0885b65b55878a58fcca2228a5ff7bf4596247
+。
+垦利市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新更新），点击查询：https://github.com/tongmoniel/qiche/commit/2f01182f5f2df3dc460f0ed7fddb4ca9198a8c90
+。
+昆明市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/caffeiyang/xinwen/commit/a3f037eebecd25968f29136ece66c804208720cf
+。
+昆山市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新更新），点击查询：https://github.com/mlcrufy/beijing/commit/e154c82e26ac38029aa88842fea6fa51eaf28796
+。
+拉萨市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/polo0ygim/shenzhen/commit/bb35ea63a8aed2da43bcb0dd515ff6639ebb0f94
+。
+来宾市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新上线），点击查询：https://github.com/caffeiyang/xinwen/commit/bf053ced28e0383109a73c416bea3065c1aeb4f8
+。
+莱芜市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/tongmoniel/qiche/commit/2984590c0a335e180bfafb025cc230dc3a4573a7
+。
+兰州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/mlcrufy/beijing/commit/0f7c0ec1a8991887729e0bb737a47817817010c6
+。
+廊坊市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/polo0ygim/shenzhen/commit/6ad60feb8ee2c092711581ca29ec23f7c288e825
+。
+乐清市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新更新），点击查询：https://github.com/tongmoniel/qiche/commit/af804d30740cb88dca8a17affd999b26af1b3f20
+。
+乐山市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/caffeiyang/xinwen/commit/7c5c3c4bfb7d87461878d8f7aa4d2927de74db81
+。
+丽水市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新升级），点击查询：https://github.com/mlcrufy/beijing/commit/69798fd3f7a4a599dec84aefbc0f1dcc0c696831
+。
+连云港市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式更新），点击查询：https://github.com/polo0ygim/shenzhen/commit/04e246cf8344727fc561f496a98fc74399426aa8
+。
+凉山市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式升级），点击查询：https://github.com/caffeiyang/xinwen/commit/93b7351bb57e1ad26673fb84c5aba08240fc95cb
+。
+聊城市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/tongmoniel/qiche/commit/53fb21988cb645b4b64cb35c060100b51376b972
+。
+辽阳市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新上线），点击查询：https://github.com/mlcrufy/beijing/commit/bd93838cc7967cdfae03a9ba2da50420f19170a4
+。
+临汾市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式更新），点击查询：https://github.com/polo0ygim/shenzhen/commit/f5955bc755d9deb84d7afc74e8be3838db3b24f5
+。
+临沂市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/caffeiyang/xinwen/commit/1ff92d443457ada829133d53990cee4fb36e9ad9
+。
+六安市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式升级），点击查询：https://github.com/tongmoniel/qiche/commit/45554112860a41f2c99f07ddbea795e0182e16f4
+。
+柳州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/mlcrufy/beijing/commit/663633dd567b21513d7c7848c864c16e8965c992
+。
+龙岩市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/polo0ygim/shenzhen/commit/70d8a460ac2508439a5bbb03ecba55ecc1f1af1e
+。
+娄底市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新公布），点击查询：https://github.com/caffeiyang/xinwen/commit/e89f968b0f1947d01f65d61aa05308076bfd2b03
+。
+洛阳市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/tongmoniel/qiche/commit/4e67d27fe250f26bcf218531f41bc52f4e919f51
+。
+马鞍山市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新更新），点击查询：https://github.com/mlcrufy/beijing/commit/81d2b2bd2eb4c78f0a1fa8a3c5f17c9bb6b12dfe
+。
+茂名市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新公布），点击查询：https://github.com/polo0ygim/shenzhen/commit/df64fc2255f09c52b806c3b67bf43fb275782652
+。
+眉山市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新更新），点击查询：https://github.com/tongmoniel/qiche/commit/01557bf0fa2d73207012460fd4af0db82657e961
+。
+梅州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/caffeiyang/xinwen/commit/8fb436c070e3530a03350b08040b144ed282c64c
+。
+绵阳市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/mlcrufy/beijing/commit/648b83f920167bcbc5922841e783a798a6a10019
+。
+明港市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/polo0ygim/shenzhen/commit/f9e5f463716d31b26dd71eb26196e64dcbf8724e
+。
+牡丹江市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式更新），点击查询：https://github.com/caffeiyang/xinwen/commit/265d98f1ec65c9f35bf867a9f89345abc88c9098
+。
+南安市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网推出），点击查询：https://github.com/tongmoniel/qiche/commit/f5f27228f0c15cc769aec620da3c470f9d6374cb
+。
+南昌市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/polo0ygim/shenzhen/commit/2852379ea3daae86c2033e88f8d46f3c89e6c8fe
+。
+南充市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/mlcrufy/beijing/commit/8812cb7b79ce8fef8038c86be5dda53977243b8b
+。
+南京市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/caffeiyang/xinwen/commit/0c9c334ed1c31185fa42a8c60fe42d9749b421c5
+。
+南宁市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/tongmoniel/qiche/commit/5ac1fe1aa46bd4768029dd1cafcedd8fd4747a7a
+。
+南平市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/mlcrufy/beijing/commit/0cec3add0700930d816376d988c6e9c742770505
+。
+南通市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/polo0ygim/shenzhen/commit/e7961628f79520f61355d35e9e5beceb72323f18
+。
+南阳市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新更新），点击查询：https://github.com/caffeiyang/xinwen/commit/651c8bb2b1aa7b211bf92339d4da632c4233a29c
+。
+内江市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/tongmoniel/qiche/commit/99b01db6caa75c1fb09468acfb78d00693950bdb
+。
+宁波市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/mlcrufy/beijing/commit/9f9f1f9d312306bba8fa9f4956f8acd7db57c3e3
+。
+宁德市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/polo0ygim/shenzhen/commit/5baca8da485871c842cbdbe88c18eee1aa36b4f9
+。
+宁国市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/caffeiyang/xinwen/commit/a722350208f5a869320f0891c78b472fe3e4e7ef
+。
+盘锦市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/tongmoniel/qiche/commit/f1e6f134aa5183bfa2439507f117dbb339202066
+。
+攀枝花市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新更新），点击查询：https://github.com/polo0ygim/shenzhen/commit/fbcba65b8527204cbe9b7ee6020b95e0ce7dbc38
+。
+平顶山市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新推出），点击查询：https://github.com/mlcrufy/beijing/commit/d8aee855b2f0d318d33d002d7d14e47d9c9de555
+。
+萍乡市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新更新），点击查询：https://github.com/caffeiyang/xinwen/commit/ed5ecca95f2e939ee92c5548f57b924a59aefabf
+。
+莆田市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式上线），点击查询：https://github.com/tongmoniel/qiche/commit/1ad431522af24a24d563a43482b3d6873af19d29
+。
+启东市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/mlcrufy/beijing/commit/0ddfffe984ec2babfbc1a84b4bea9e7250e621db
+。
+齐齐哈尔市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/tongmoniel/qiche/commit/e3933a6e552e2ae8f4581e6367d67d9fad55ee5d
+。
+潜江市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/caffeiyang/xinwen/commit/f71ab8d92a0524c3ea63b7207006a15d480f49da
+。
+秦皇岛市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一公布），点击查询：https://github.com/polo0ygim/shenzhen/commit/0ef5c80243c1bf96d7b2fc69c6304bb5d4876989
+。
+钦州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/mlcrufy/beijing/commit/e7948a5a86a788965996d36d307b6bf4073185ee
+。
+青岛市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/caffeiyang/xinwen/commit/f2de00b7518ebaeb87e21d20a7a0070882119c8e
+。
+清远市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/polo0ygim/shenzhen/commit/a203298c67ce69922097b0007fe92d0713e786b0
+。
+曲靖市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网推出），点击查询：https://github.com/tongmoniel/qiche/commit/bf9303a084db79694c88f74292067f465d08b2f9
+。
+泉州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/polo0ygim/shenzhen/commit/ef2732647c4395a18af1fb6ba423b2438c298aef
+。
+日照市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/mlcrufy/beijing/commit/8981b93baa9aa1fb949edcc150e05975f9cfa935
+。
+如东市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/tongmoniel/qiche/commit/3305f6a3687b41a25c05a27587591afa995fcdf9
+。
+如皋市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新推出），点击查询：https://github.com/caffeiyang/xinwen/commit/06930a0f7ed353c5ea26e2bd92b77209d9948b4f
+。
+瑞安市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/mlcrufy/beijing/commit/3b1095dc175720cd195485a084d9be31cba600a0
+。
+三门峡市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/tongmoniel/qiche/commit/fd27f5524ca60d4d50af582715019f67e6d1cd0b
+。
+三明市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网推出），点击查询：https://github.com/caffeiyang/xinwen/commit/c33c6bb00ed79f35fff3a2a9cb583488f0a64fb3
+。
+三亚市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一公布），点击查询：https://github.com/polo0ygim/shenzhen/commit/316e940edcbc7736b595d9c1eb23d35d9ea74c22
+。
+汕头市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式推出），点击查询：https://github.com/mlcrufy/beijing/commit/c4f61ab35cb60236f6ddafc0fd8da95f85adbe23
+。
+汕尾市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/caffeiyang/xinwen/commit/7ad46bd87f68bdf9acaf82014a23fb955d1f2d36
+。
+上海市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新上线），点击查询：https://github.com/polo0ygim/shenzhen/commit/aa48888b5bcb4bbb977b9062df2312400e2000dd
+。
+商丘市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新上线），点击查询：https://github.com/tongmoniel/qiche/commit/83d2a4266b29f86094538b69200c5e444f8cc484
+。
+上饶市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/polo0ygim/shenzhen/commit/611c85d9eda721f6ee31594996e7c96475b97c29
+。
+韶关市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/tongmoniel/qiche/commit/c8dd675b4e3687f2b7f324881a99d8cd33ac2115
+。
+绍兴市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/caffeiyang/xinwen/commit/c9fd5deb4ce27e11883543bde245eb65e7dd39e6
+。
+邵阳市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/mlcrufy/beijing/commit/295971949deded90b19636dc28e94620db523342
+。
+神农架市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式升级），点击查询：https://github.com/polo0ygim/shenzhen/commit/87fb7315d3c3f63664fceb9d45410099fb35b55e
+。
+沈阳市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/tongmoniel/qiche/commit/dd543ab6c67c75ba99d756d3b7b9e8f03d65e658
+。
+深圳市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/caffeiyang/xinwen/commit/f92edb865e41388009b9b0f8c6b43fcdb61cb668
+。
+石河子市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网推出），点击查询：https://github.com/mlcrufy/beijing/commit/fd27d5090c8fcba7346a83ad30f9c9ab74a38241
+。
+石家庄市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式上线），点击查询：https://github.com/polo0ygim/shenzhen/commit/eb6c928c839d23f207711e2b0fceaa8c1513f96a
+。
+石狮市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/caffeiyang/xinwen/commit/ae2bc8b0dfece3bc6fae13477b37451c5cc6431d
+。
+十堰市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式上线），点击查询：https://github.com/mlcrufy/beijing/commit/a5128a6ed5a30c0ff1fefce357435342c9032717
+。
+寿光市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/tongmoniel/qiche/commit/21a0bb46dc369db25e2d5f70c9f7b3c4aa35e9ea
+。
+顺德市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新更新），点击查询：https://github.com/polo0ygim/shenzhen/commit/02ee2de441a68a63e27217d2a1521f1699c0c6a3
+。
+四平市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一上线），点击查询：https://github.com/caffeiyang/xinwen/commit/ceb3520db568f96b5cf0086f98d030efcccc5fd0
+。
+宿迁市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/tongmoniel/qiche/commit/ac39c15207c8f03c646f5799dcaa098d5f1cf06d
+。
+苏州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/mlcrufy/beijing/commit/507ae5a87b3e0062077e2929fa74770507ad1d89
+。
+宿州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式升级），点击查询：https://github.com/polo0ygim/shenzhen/commit/0cf8a3bce7a095aafd08756ce611839a703308d7
+。
+遂宁市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/caffeiyang/xinwen/commit/89d3d0edfb1e16e5178c751458f186a2fb86940f
+。
+随州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/tongmoniel/qiche/commit/755b17e5c5c99cfce3194c404094ed650ae2e703
+。
+泰安市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/mlcrufy/beijing/commit/bf44985ad47f67f50c92bb7693eced5426b78fce
+。
+台山市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新公布），点击查询：https://github.com/polo0ygim/shenzhen/commit/d9690aa185d9e9efbbd3861bb1a74497bfe4aeb5
+。
+泰兴市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一上线），点击查询：https://github.com/caffeiyang/xinwen/commit/c176a822462725c0771a17373dd634322361db6d
+。
+太原市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一上线），点击查询：https://github.com/mlcrufy/beijing/commit/cb9b9998027ad1c0eb7154eef2de52d265e4ae9d
+。
+泰州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/tongmoniel/qiche/commit/562a783c9da391c28c08ab4384bfb73c08f1a2cd
+。
+唐山市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新更新），点击查询：https://github.com/polo0ygim/shenzhen/commit/b53bc821d297028f8e3018296657fff14d6a37dd
+。
+天长市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/caffeiyang/xinwen/commit/fe12cd76b7b75d2d169396a2ef4d035f2c04b155
+。
+天津市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式更新），点击查询：https://github.com/tongmoniel/qiche/commit/73bcb1bfa077d809236632cb29a032e297ac1453
+。
+天门市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新更新），点击查询：https://github.com/mlcrufy/beijing/commit/59f6ae1967460e1f7333ac60f6dc7e3116b4b062
+。
+天水市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网推出），点击查询：https://github.com/caffeiyang/xinwen/commit/8f9b01e1eadff515bcda725e01a58058e4f64778
+。
+铁岭市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/mlcrufy/beijing/commit/53b2a135f4ae33b3912a34a8d5c2c70e00663a5a
+。
+桐城市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式更新），点击查询：https://github.com/tongmoniel/qiche/commit/0763ead7bdacf5d6529ce25773476bd82a3c8aba
+。
+铜川市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/polo0ygim/shenzhen/commit/d9c76c25b6aeba6fefac225b236bffeb787e4d60
+。
+铜陵市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/caffeiyang/xinwen/commit/c88aef64cb462c026c7039461532948c062828ab
+。
+桐乡市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一上线），点击查询：https://github.com/mlcrufy/beijing/commit/3c52c12b7c7b53ed1564b7de5cab51cebe5ce45b
+。
+瓦房店市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/polo0ygim/shenzhen/commit/c813491d966ad91664a927000b18d0a79eef98d8
+。
+潍坊市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/tongmoniel/qiche/commit/e9c7cfdc6d1ea4f6e465cb32c52178062dbefa23
+。
+威海市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式推出），点击查询：https://github.com/caffeiyang/xinwen/commit/0486757b3f07a84e525de1dfd225119acf18ec6b
+。
+温岭市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/polo0ygim/shenzhen/commit/41c7da24a9b6462a76e404e732c3c695d34bd1bf
+。
+温州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式推出），点击查询：https://github.com/mlcrufy/beijing/commit/2d083a5e4315cf07d2fc9cdbfbd6c270cc6d7e23
+。
+武汉市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新升级），点击查询：https://github.com/tongmoniel/qiche/commit/d98548da64bc073106b6bb0e8492c177857d7d73
+。
+芜湖市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式公布），点击查询：https://github.com/caffeiyang/xinwen/commit/b9806e44e0192c7b872c928f716ecba3a4345168
+。
+乌鲁木齐市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/mlcrufy/beijing/commit/313381ab344397853dcc17a4e842eaacca20a640
+。
+无锡市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/polo0ygim/shenzhen/commit/a4346c329074332801a382a82ce310201972e01b
+。
+武夷山市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新公布），点击查询：https://github.com/tongmoniel/qiche/commit/67754cf5bd095b7c47306e95e14d42361d66d5c9
+。
+梧州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一上线），点击查询：https://github.com/caffeiyang/xinwen/commit/85570d6a156d2b82913602bcb33f1b1f78b99022
+。
+西安市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新更新），点击查询：https://github.com/mlcrufy/beijing/commit/6e584f31e2b09bc1f88640326a143d31273d880d
+。
+西宁市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/polo0ygim/shenzhen/commit/8361b06fc1af68059ec6028e790a75528d841e0b
+。
+厦门市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/tongmoniel/qiche/commit/2fc94f92c58b514acf76ac48222817e88f976945
+。
+咸宁市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/caffeiyang/xinwen/commit/1030219daead242edb8386a69c39f62548a1ae3a
+。
+仙桃市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/polo0ygim/shenzhen/commit/843c8450ae24c393a1d5c88e859285af428002b4
+。
+咸阳市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/mlcrufy/beijing/commit/782dffc2763663d32d28ef84aef79a08468f4bc9
+。
+襄樊市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新更新），点击查询：https://github.com/tongmoniel/qiche/commit/0ee77366ea1a8f3f6471bfa0c4a7008c95ed775e
+。
+象山市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/mlcrufy/beijing/commit/38726d78dfa0e556af62d4d94384dfcdf40833a1
+。
+湘潭市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网推出），点击查询：https://github.com/caffeiyang/xinwen/commit/e09ee8849bdde05cb7370ec9ec5bd632de54b5a5
+。
+湘西市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/polo0ygim/shenzhen/commit/89e655b4798b2d88f54ca9d296a5f3c6a1a2ac78
+。
+襄阳市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新更新），点击查询：https://github.com/tongmoniel/qiche/commit/4ad3cb775e272fe78ee4ad11d87361fe3710b38c
+。
+孝感市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式更新），点击查询：https://github.com/mlcrufy/beijing/commit/de295ecbc2dca8fc045f6b87f6118617f6eb1031
+。
+萧山市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/caffeiyang/xinwen/commit/f21da01c28ea046af6e8cb7cdcdf7a8aecd3724d
+。
+新乡市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新公布），点击查询：https://github.com/polo0ygim/shenzhen/commit/6a254cba74e1fe3bb7ef6bb0095c7718a5e209a3
+。
+信阳市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/tongmoniel/qiche/commit/953d46417750c133301e15e1cf4fde2963e3daf3
+。
+新沂市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式上线），点击查询：https://github.com/polo0ygim/shenzhen/commit/592dcde64920f8005d9786a9a62825c1f2b0d44b
+。
+新余市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/mlcrufy/beijing/commit/e13764d8c981f8867c98cbc8e44fcc3569bb16bd
+。
+兴化市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/caffeiyang/xinwen/commit/f15e1fba41001ea0de9cd97bf7c922028946521a
+。
+邢台市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/tongmoniel/qiche/commit/8232c11c29938299e401b3b4dd9558d1108ee83b
+。
+许昌市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新更新），点击查询：https://github.com/mlcrufy/beijing/commit/2df2be2670a598188892a7713bf4b49854907844
+。
+徐州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/polo0ygim/shenzhen/commit/843ae8cb403381949148d491d35eef4f89c0f85f
+。
+宣城市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式推出），点击查询：https://github.com/tongmoniel/qiche/commit/297056b69c762caf25dc46f9f4838c13e7d02019
+。
+雅安市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一上线），点击查询：https://github.com/caffeiyang/xinwen/commit/ae89735c1f52f1fe7b581ee8952126fd65dd1d5a
+。
+延安市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/mlcrufy/beijing/commit/4f836eb98e80cd8fdde86c6051b1a95fdd070496
+。
+盐城市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一公布），点击查询：https://github.com/polo0ygim/shenzhen/commit/761158c7ed1d2d458fba031f2057258f016a9185
+。
+烟台市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式上线），点击查询：https://github.com/caffeiyang/xinwen/commit/37de820d2b59e9ac856f5807022644de75ef2672
+。
+阳春市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新推出），点击查询：https://github.com/tongmoniel/qiche/commit/ae7e901d819353103b714d062de1cf27dd2077fd
+。
+阳江市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/polo0ygim/shenzhen/commit/f0b08dbf1376713751af26d3c1e9861b54d219a9
+。
+阳泉市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/caffeiyang/xinwen/commit/59ce60f3bb4716594ec134a45e6a615cd87fceee
+。
+扬中市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/tongmoniel/qiche/commit/ec874266ce714bc8a6cc68e526b64f6df38ac4fe
+。
+扬州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/mlcrufy/beijing/commit/5d7a72a9dc7018dfa0d4187e717da53b6e91703b
+。
+宜宾市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新升级），点击查询：https://github.com/polo0ygim/shenzhen/commit/4157cc8a680c1c3b8babc04e6576acb7b7e17dac
+。
+宜昌市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新更新），点击查询：https://github.com/tongmoniel/qiche/commit/e89ee591ccaab93f58e46d554644b9253653089e
+。
+宜春市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/mlcrufy/beijing/commit/2ae6bc81317eeb6ca1be7717cbd1fcc759b83678
+。
+宜都市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/caffeiyang/xinwen/commit/b43e7c9db64f508016bbac28fea47bd1ad56ad16
+。
+义乌市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/polo0ygim/shenzhen/commit/42adcf409acca8f1c257a1b387c0479d92d99a86
+。
+宜兴市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/mlcrufy/beijing/commit/b6123470c252283711135d0753c0499e15ddfd92
+。
+益阳市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新升级），点击查询：https://github.com/caffeiyang/xinwen/commit/518b36e042543f78cd62d3f96b3431a1e2f072d4
+。
+银川市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新推出），点击查询：https://github.com/tongmoniel/qiche/commit/46a8365e56d9eb9cc9c085047565dc3a01403f56
+。
+营口市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/polo0ygim/shenzhen/commit/66a25f86855ac0d94e8c9630757bac7b4f61904e
+。
+鹰潭市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/tongmoniel/qiche/commit/14299a2dd2b96a7068f2d68823b19a8a572d762f
+。
+永新市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式推出），点击查询：https://github.com/mlcrufy/beijing/commit/85b70bacdfa068af6a76a14fe75a3e05a7c318f7
+。
+永州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/caffeiyang/xinwen/commit/fa61b74f17a31f4d3b3dea09cb6b7bc76f816fc2
+。
+榆林市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式公布），点击查询：https://github.com/tongmoniel/qiche/commit/a43d6950b0e96c59231765582affe92cae9e5b36
+。
+玉林市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/mlcrufy/beijing/commit/70820c4c1fd2f13bc9aef88adc553d2451c31f16
+。
+玉溪市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式公布），点击查询：https://github.com/polo0ygim/shenzhen/commit/516a596ee3d9b840235e7711c914a6ff3779781a
+。
+余姚市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/caffeiyang/xinwen/commit/e8c2c79be0661ac726e89c5ca9e59d90a5baa9b0
+。
+禹州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新更新），点击查询：https://github.com/mlcrufy/beijing/commit/e33ef6cce293a70918710d65a756dbe998b52ef5
+。
+岳阳市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一上线），点击查询：https://github.com/polo0ygim/shenzhen/commit/11353b088cf6bbf584a3dfdbdb91a24507014e6e
+。
+云浮市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新升级），点击查询：https://github.com/caffeiyang/xinwen/commit/5ce343cc5c427972a5f0171e0a08ed7de9f7a38e
+。
+枣庄市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/tongmoniel/qiche/commit/e61ee3f57cff86973a39b8b473249da230f7b3fd
+。
+湛江市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式更新），点击查询：https://github.com/polo0ygim/shenzhen/commit/3e0ce1ab3caa680311268c7247eaf08160895702
+。
+张家界市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新更新），点击查询：https://github.com/mlcrufy/beijing/commit/937ee8d8e89b5efd2c796c19378d8a76fe7c8bcc
+。
+张家口市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新推出），点击查询：https://github.com/tongmoniel/qiche/commit/95d796015658fe3a71d16a7be2db283fcfd1a3b2
+。
+章丘市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新上线），点击查询：https://github.com/caffeiyang/xinwen/commit/9ae9245c59c1e27ecfca49d44aa57ff38c78e7d7
+。
+漳州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式升级），点击查询：https://github.com/mlcrufy/beijing/commit/2987de1231002a4368ba02c532da176399d5a2c0
+。
+肇庆市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式上线），点击查询：https://github.com/tongmoniel/qiche/commit/3e9a6e65888245a7812237b21dbac42c570f0948
+。
+镇江市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式升级），点击查询：https://github.com/polo0ygim/shenzhen/commit/9e2c90962cf038ab4613a5f721b9a0eaa3d253dc
+。
+郑州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式上线），点击查询：https://github.com/caffeiyang/xinwen/commit/d738a37fbae5a3c5f15b15fba5a3ff3706838ee3
+。
+重庆市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/mlcrufy/beijing/commit/1cb9880ab7f9e260c33696b3c51d4f81a7975be0
+。
+中山市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/polo0ygim/shenzhen/commit/5dd972e266cd0ac0df1495f34e9b49b5e04374f0
+。
+周口市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/caffeiyang/xinwen/commit/13c86bc9ec061b64bb20e45dbeb148471098636d
+。
+舟山市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/tongmoniel/qiche/commit/e89ee02678d1257932a0baaaeb67504ff79491d2
+。
+诸城市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/polo0ygim/shenzhen/commit/9ab5a90332275dfc879d566f3aca908a59a1f512
+。
+珠海市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式公布），点击查询：https://github.com/mlcrufy/beijing/commit/5d268b82119a9353e57e5aee360dd6ba1a5c4560
+。
+株洲市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式升级），点击查询：https://github.com/tongmoniel/qiche/commit/751fc10af555341f81794e0ca64114809431395e
+。
+诸暨市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/caffeiyang/xinwen/commit/84d7d334606bc1aa93fbfaaf99989e3bf451d3d9
+。
+庄河市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式升级），点击查询：https://github.com/mlcrufy/beijing/commit/f15c058dd7b484ec3f958cd4a9976ef5562ca174
+。
+自贡市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/polo0ygim/shenzhen/commit/af033deb66acfb049ac8e4a0d81ee7c09bedcbf4
+。
+资阳市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/tongmoniel/qiche/commit/e793a3a97a45249ae82f816a5473e7baa400f19f
+。
+遵义市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/caffeiyang/xinwen/commit/52dc3bc49b8cd94c9322c7bd78e4fa03c40fd800
+。
+漯河市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/mlcrufy/beijing/commit/852173dc0aa366327231768a150075eac8294fd9
+。
+鄢陵市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一上线），点击查询：https://github.com/polo0ygim/shenzhen/commit/4b117b61b601c293c7ade1778345e30523d7db2e
+。
+沭阳市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新推出），点击查询：https://github.com/caffeiyang/xinwen/commit/483e5240b83f09589bdc47c698bfd2977c70e48a
+。
+濮阳市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新公布），点击查询：https://github.com/tongmoniel/qiche/commit/de4c162504583e554c4ba60500e365098aab92aa
+。
+溧阳市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/polo0ygim/shenzhen/commit/cb4d10d7f9457fb84176f82a7d491ab20bbba43e
+。
+泸州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/mlcrufy/beijing/commit/5b86c14ce4be2c501f4302a36b90a14791da14f5
+。
+衢州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/tongmoniel/qiche/commit/58cf571b669b55a5e4edb38972b68442fbeaf3c6
+。
+亳州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/caffeiyang/xinwen/commit/7778023797cb8871c6313b1fc897ea436231d448
+。
+邳州市地暖f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/mlcrufy/beijing/commit/4d48e132c04e6048bf8aaaa99d52f42a1dc16f9d
+。
+wefhsdhcvWESDCSDwefsdf.cn
+*报告生成时间：2026年07月07日03时22分53秒*
+*数据来源：新浪财经、公开媒体报道*
